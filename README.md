@@ -6,4 +6,4 @@ Blockchain, usdt, Eth, Dapp, Defi, transfer, approve, wallet connection, virtual
 ![image](https://raw.githubusercontent.com/wansan66/defi-dapp/main/2022-04-19%2012.50.11.jpg)![image](https://github.com/wansan66/defi-dapp/blob/main/2022-04-19%2012.50.21.jpg?raw=true)
 ![image](https://github.com/wansan66/defi-dapp/blob/main/2022-04-19%2012.50.24.jpg?raw=true)
 
-提供区块链产品服务，欢迎各位老板来详谈。联系方式纸飞机@wansan1688
+不闲聊，实力提供区块链产品，欢迎各位老板来详谈。联系方式请加纸飞机@wansan1688
